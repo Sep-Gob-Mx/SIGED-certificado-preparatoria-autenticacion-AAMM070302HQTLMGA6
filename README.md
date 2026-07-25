@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AAMM070302HQTLMGA6
+AAMM070302HQTLMGA6
